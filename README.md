@@ -5,11 +5,11 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=roshan-bh&label=Profile%20views&color=0e75b6&style=flat" alt="roshan-bh" /> </p>
 
-- 👨‍💻 All of my projects are available at [https://www.roshan-bhandary.com.np](https://roshan-bhandary.com.np)
+- 👨‍💻 All of my projects are available at [https://www.roshan-bhandary.com.np](https://www.roshan-bhandary.com.np)
 
 - 📫 Reach ME! **donework121@gmail.com/+977-9865382885**
 
-- 📄 Get know about my experiences [https://www.roshan-bhandary.com.np/cv](https://www.roshan-bhandary.com.np/cv)
+- 📄 Get know about my experiences [https://www.roshan-bhandary.com.np/cv.pdf](https://www.roshan-bhandary.com.np/cv.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
