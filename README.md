@@ -9,7 +9,7 @@
 
 - 📫 Reach ME! **donework121@gmail.com/+977-9865382885**
 
-- 📄 Get know about my experiences [https://roshan-bhandary.com.np/cv](https://roshan-bhandary.com.np/cv)
+- 📄 Get know about my experiences [https://roshan-bhandary.com.np/cv](https://www.roshan-bhandary.com.np/cv)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
